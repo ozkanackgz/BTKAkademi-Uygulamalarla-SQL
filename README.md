@@ -1,1 +1,1 @@
-Eğitim Uygulamaları
+Eğitim Uygulamaları.
